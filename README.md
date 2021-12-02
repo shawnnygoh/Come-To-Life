@@ -1,0 +1,1 @@
+This is a project showcasing text coming to life. Includes one of my favourite memes of all time 😁
